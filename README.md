@@ -6,3 +6,7 @@
 - BDK Gris Charnel Extrait de Parfum
 - Pana Dora Oud Republic
 - Montale Infinity Eau de Parfum
+
+
+# Gekauft
+- Mirage Paris scandal musk
